@@ -1,4 +1,4 @@
-- 👋 Hi, I’m/ @Hakuna030
-- 👀 I’m interested in video/ games
-- 🌱 I’m currently learning/ Deusch
-- 📫 How to reach me/ My server: https://discord.gg/030 - discord: !-Hakuna⁰³⁰ ♔#0030
+- 👋 Hi, I’m/ (@Hakuna030)
+- 👀 I’m interested in/ (video games)
+- 🌱 I’m currently learning/ (Deusch)
+- 📫 How to reach me/ (My server: https://discord.gg/030 - discord: !-Hakuna⁰³⁰ ♔#0030)
