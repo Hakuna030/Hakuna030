@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Hakuna030
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning Deusch
+- 📫 How to reach me https://discord.gg/030 - !-Hakuna⁰³⁰ ♔#0030
